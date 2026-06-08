@@ -18,4 +18,4 @@ Machine Learning enthusiast focused on AI, Data Science, and Deep Learning.
 - Deep Learning
 
 ## Connect With Me
-LinkedIn: (ضع رابط حسابك)
+LinkedIn:(https://www.linkedin.com/in/islam3ouf?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app) 
